@@ -1,4 +1,4 @@
-- 🌱 I’m currently learning Data Analysis. Litertally zero background in tech, I need so much help dear god
+- 🌱 I’m currently learning Data Analysis. Litertally zero background in tech, I need so much help dear god..
 
 
 <!---
